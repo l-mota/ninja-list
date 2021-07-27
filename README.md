@@ -23,4 +23,4 @@ Basicaly you will learn the follow content listed below:
 
 Everything for free! 🎉🎉🎉🎉
 
-You can follow the link at the top of this file and subscribe on his channel for more tutotials.
+You can follow the link at the top of this file and subscribe on his channel for more tutorials.
